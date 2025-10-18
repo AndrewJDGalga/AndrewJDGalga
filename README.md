@@ -1,2 +1,2 @@
-👋 Hi, I’m @AndrewJDGalga
-👀 Who might you be?
+- 👋 Hi, I’m @AndrewJDGalga
+- 👀 Who might you be?
